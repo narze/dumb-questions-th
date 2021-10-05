@@ -9,3 +9,4 @@ Random questions as an excuse to ask her/him out, some considered dumb so use th
 - กินข้าวหรือยัง
 - ทำอะไรอยู่
 - นอนหรือยัง
+- ยังรักกันอยู่มั้ย
