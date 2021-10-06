@@ -12,4 +12,5 @@ Random questions as an excuse to ask her/him out, some considered dumb so use th
 - อยู่กับใครอะ
 - ยังรักกันอยู่มั้ย
 - กินหญ้าหรือยัง?
+- จับหน่อยได้ไหม
 - ไก่หรือไข่
