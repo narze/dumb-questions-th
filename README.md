@@ -15,6 +15,3 @@ Random questions as an excuse to ask her/him out, some considered dumb so use th
 - ไปเที่ยวทะเลกันไหม
 - จับหน่อยได้ไหม
 - ไก่หรือไข่
-
-- ใครถาม?
-- ไปเที่ยวไหม
