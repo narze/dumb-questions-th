@@ -18,3 +18,4 @@ Random questions as an excuse to ask her/him out, some considered dumb so use th
 - โจทย์ข้อนี้ทำยังไงอะ
 - ไปเที่ยวไหม
 - ใครถาม?
+- ง่วงหรือยัง
