@@ -21,3 +21,4 @@ Random questions as an excuse to ask her/him out, some considered dumb so use th
 - ง่วงหรือยัง
 - เขารักบ้างไหม?
 - นายกออกยัง?
+- ความพยายามอยู่ที่ไหน
