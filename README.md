@@ -26,3 +26,4 @@ Random questions as an excuse to ask her/him out, some considered dumb so use th
 - กลับมาได้ไหม
 - เมื่อไหร่เธอจะตอบแชท?
 - เมื่อไหร่มหาลัยจะเปิด?
+- เมื่อไหร่จะเลือกตั้ง?
