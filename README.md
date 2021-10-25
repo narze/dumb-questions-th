@@ -25,3 +25,4 @@ Random questions as an excuse to ask her/him out, some considered dumb so use th
 - เป็นแฟนกันนะ
 - กลับมาได้ไหม
 - เมื่อไหร่เธอจะตอบแชท?
+- มีแฟนมาแล้วกี่คน?
