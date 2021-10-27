@@ -27,4 +27,5 @@ Random questions as an excuse to ask her/him out, some considered dumb so use th
 - เมื่อไหร่เธอจะตอบแชท?
 - มีแฟนมาแล้วกี่คน?
 - เมื่อไหร่มหาลัยจะเปิด?
+- อยากกินอะไร?
 - เมื่อไหร่จะเลือกตั้ง?
