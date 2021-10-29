@@ -30,3 +30,4 @@ Random questions as an excuse to ask her/him out, some considered dumb so use th
 - อยากกินอะไร?
 - เมื่อไหร่จะเลือกตั้ง?
 - กินไรดี?
+- ทำอะไรดี?
