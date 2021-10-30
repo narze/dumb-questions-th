@@ -31,4 +31,6 @@ Random questions as an excuse to ask her/him out, some considered dumb so use th
 - เมื่อไหร่จะเลือกตั้ง?
 - กินไรดี?
 - ทำอะไรดี?
+- กลับไงอะ?
+- ไปส่งมั้ย?
 - วันนี้อากาศดีแนอะ?
