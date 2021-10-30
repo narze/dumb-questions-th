@@ -33,3 +33,4 @@ Random questions as an excuse to ask her/him out, some considered dumb so use th
 - ทำอะไรดี?
 - กลับไงอะ?
 - ไปส่งมั้ย?
+- วันนี้อากาศดีแนอะ?
