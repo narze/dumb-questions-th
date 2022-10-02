@@ -39,4 +39,5 @@ Random questions as an excuse to ask her/him out, some considered dumb so use th
 - กลางวันหรือกลางคืน?
 - ตื่นยัง?
 - นอนยัง?
+- เป็นคนจังหวัดอะไรอะ?
 - ชุดนี้ดีไหม?
