@@ -39,3 +39,5 @@ Random questions as an excuse to ask her/him out, some considered dumb so use th
 - กลางวันหรือกลางคืน?
 - ตื่นยัง?
 - นอนยัง?
+- หมูกระทะ หรือ ชาบู ? 
+- ไอโฟน หรือ แอนดรอยด์
