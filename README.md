@@ -43,3 +43,4 @@ Random questions as an excuse to ask her/him out, some considered dumb so use th
 - ไอโฟน หรือ แอนดรอยด์
 - เป็นคนจังหวัดอะไรอะ?
 - ชุดนี้ดีไหม?
+- วันนี้ใส่สีอะไร?
