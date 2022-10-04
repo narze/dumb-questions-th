@@ -49,3 +49,5 @@ Random questions as an excuse to ask her/him out, some considered dumb so use th
 - นอนดีไหมน่ะ?
 - อาบน้ำดีไหมไม่ได้ออกไปไหน?
 - อยากกินหมูกระทะ แต่ทำยังไงให้ไม่อ้วน
+
+- ตัวฉันนั้นเป็นใครกัน ?
