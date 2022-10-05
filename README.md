@@ -39,7 +39,7 @@ Random questions as an excuse to ask her/him out, some considered dumb so use th
 - กลางวันหรือกลางคืน?
 - ตื่นยัง?
 - นอนยัง?
-- หมูกระทะ หรือ ชาบู ? 
+- หมูกระทะ หรือ ชาบู ?
 - ไอโฟน หรือ แอนดรอยด์
 - เป็นคนจังหวัดอะไรอะ?
 - ชุดนี้ดีไหม?
@@ -53,3 +53,4 @@ Random questions as an excuse to ask her/him out, some considered dumb so use th
 - มีใครมีบุ้งกี๋บ้าง?
 - เป็นคนที่ไหน ?
 - ตัวฉันนั้นเป็นใครกัน ?
+- ชื่อไรอ่ะ?
