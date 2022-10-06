@@ -56,3 +56,4 @@ Random questions as an excuse to ask her/him out, some considered dumb so use th
 - ชื่อไรอ่ะ?
 - ว่าไง?
 - เนื้อหรือหมู?
+- คอลกันมั้ย?
