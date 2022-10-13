@@ -64,4 +64,5 @@ Random questions as an excuse to ask her/him out, some considered dumb so use th
 - หมี่หยกลวกไม่ลวก?
 - เหนื่อยมั้ย?
 - กินอะไรมารึยัง?
+- เป็นคนยังไง?
 - วันนี้งานหนักไหม?
