@@ -62,3 +62,5 @@ Random questions as an excuse to ask her/him out, some considered dumb so use th
 - น้ำท่วมไหม
 - แดดออกไหม
 - หมี่หยกลวกไม่ลวก?
+- เหนื่อยมั้ย?
+- กินอะไรมารึยัง?
