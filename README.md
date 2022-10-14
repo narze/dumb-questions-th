@@ -66,3 +66,4 @@ Random questions as an excuse to ask her/him out, some considered dumb so use th
 - กินอะไรมารึยัง?
 - เป็นคนยังไง?
 - วันนี้งานหนักไหม?
+- รับขนมจีบ-ซาลาเปา เพิ่มไหม?
