@@ -70,3 +70,4 @@ Random questions as an excuse to ask her/him out, some considered dumb so use th
 - รับขนมจีบ-ซาลาเปา เพิ่มไหม?
 - ล้มเจ็บไหม?
 - หายใจอยู่ไหม?
+- มีแฟนหรือยัง ?
