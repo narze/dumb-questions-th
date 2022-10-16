@@ -68,3 +68,4 @@ Random questions as an excuse to ask her/him out, some considered dumb so use th
 - วันนี้งานหนักไหม?
 - ลืมเปิดไมค์หรือเปล่า?
 - รับขนมจีบ-ซาลาเปา เพิ่มไหม?
+- ล้มเจ็บไหม?
