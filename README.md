@@ -76,3 +76,5 @@ Random questions as an excuse to ask her/him out, some considered dumb so use th
 - ไก่หรือปลาดี?
 - มาแล้วเหรอ?
 - เอาสุกไม่สุก?
+- วันนี้อากาศชื้น ๆ นะ แถวนั้นฝนตกป่าวอะ
+
