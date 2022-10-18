@@ -75,3 +75,4 @@ Random questions as an excuse to ask her/him out, some considered dumb so use th
 - เคยไปสามย่านมิตรทาวน์รึยัง ?
 - ไก่หรือปลาดี?
 - มาแล้วเหรอ?
+- เอาสุกไม่สุก?
