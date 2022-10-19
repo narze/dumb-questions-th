@@ -78,3 +78,4 @@ Random questions as an excuse to ask her/him out, some considered dumb so use th
 - เอาสุกไม่สุก?
 - วันนี้อากาศชื้น ๆ นะ แถวนั้นฝนตกป่าวอะ
 - ขอลอกหน่อยได้ไหม?
+- เอางี้....ข้อนี้ตอบไร?
