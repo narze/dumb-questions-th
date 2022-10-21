@@ -80,3 +80,4 @@ Random questions as an excuse to ask someone out, some considered dumb so use th
 - วันนี้อากาศชื้น ๆ นะ แถวนั้นฝนตกป่าวอะ
 - ขอลอกหน่อยได้ไหม?
 - เอางี้....ข้อนี้ตอบไร?
+- ไหม้ไหม ไหม้ไม่ไหม้ ?
