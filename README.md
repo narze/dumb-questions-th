@@ -82,3 +82,4 @@ Random questions as an excuse to ask someone out, some considered dumb so use th
 - เอางี้....ข้อนี้ตอบไร?
 - ไหม้ไหม ไหม้ไม่ไหม้ ?
 - กินน้ำแดงหรือน้ำส้ม?
+- จบไปทำงานอะไร
