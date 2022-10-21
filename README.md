@@ -1,6 +1,6 @@
 # คำถามโง่ๆ
 
-Random questions as an excuse to ask her/him out, some considered dumb so use them carefully.
+Random questions as an excuse to ask someone out, some considered dumb so use them carefully.
 
 - สบายดีไหม
 - จะไปทางไหน
@@ -80,5 +80,6 @@ Random questions as an excuse to ask her/him out, some considered dumb so use th
 - วันนี้อากาศชื้น ๆ นะ แถวนั้นฝนตกป่าวอะ
 - ขอลอกหน่อยได้ไหม?
 - เอางี้....ข้อนี้ตอบไร?
-
+- ไหม้ไหม ไหม้ไม่ไหม้ ?
+- กินน้ำแดงหรือน้ำส้ม?
 - จบไปทำงานอะไร
