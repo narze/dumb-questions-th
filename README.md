@@ -84,3 +84,4 @@ Random questions as an excuse to ask someone out, some considered dumb so use th
 - กินน้ำแดงหรือน้ำส้ม?
 - จบไปทำงานอะไร
 - ลาออกดีไหม?
+- รู้ไหมว่าเราลูกใคร
