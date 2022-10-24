@@ -85,3 +85,4 @@ Random questions as an excuse to ask someone out, some considered dumb so use th
 - จบไปทำงานอะไร
 - ลาออกดีไหม?
 - นั่งหรือยืนอยู่ ?
+- รู้ไหมว่าเราลูกใคร
