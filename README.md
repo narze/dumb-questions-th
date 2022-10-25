@@ -87,4 +87,5 @@ Random questions as an excuse to ask someone out, some considered dumb so use th
 - นั่งหรือยืนอยู่ ?
 - รู้ไหมว่าเราลูกใคร
 - แต่งงานรึยัง ?
+- ทำงานอะไรอยู่?
 - เมาคลีเป็นลูกหมาป่าได้ไง ?
