@@ -89,3 +89,4 @@ Random questions as an excuse to ask someone out, some considered dumb so use th
 - แต่งงานรึยัง ?
 - ทำงานอะไรอยู่?
 - เมาคลีเป็นลูกหมาป่าได้ไง ?
+- ชอบกินกะเพราใส่ถัวฝักยาวมั้ย ?
