@@ -90,5 +90,5 @@ Random questions as an excuse to ask someone out, some considered dumb so use th
 - ทำงานอะไรอยู่?
 - เมาคลีเป็นลูกหมาป่าได้ไง ?
 - ชอบกินกะเพราใส่ถัวฝักยาวมั้ย ?
-
 - มีน้ำแดงหรือจะเอาน้ำส้ม ?
+- วันนี้นอนกี่โมงดี ?
