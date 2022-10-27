@@ -90,3 +90,4 @@ Random questions as an excuse to ask someone out, some considered dumb so use th
 - ทำงานอะไรอยู่?
 - เมาคลีเป็นลูกหมาป่าได้ไง ?
 - ชอบกินกะเพราใส่ถัวฝักยาวมั้ย ?
+- วันนี้นอนกี่โมงดี ?
