@@ -2,6 +2,7 @@
 
 Random questions as an excuse to ask someone out, some considered dumb so use them carefully.
 
+- ต้นๆ รถเป็นอะไรเหรอ?
 - สบายดีไหม
 - จะไปทางไหน
 - เดินมายังไง
