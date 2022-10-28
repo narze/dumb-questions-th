@@ -2,7 +2,6 @@
 
 Random questions as an excuse to ask someone out, some considered dumb so use them carefully.
 
-- ต้นๆ รถเป็นอะไรเหรอ?
 - สบายดีไหม
 - จะไปทางไหน
 - เดินมายังไง
@@ -93,3 +92,4 @@ Random questions as an excuse to ask someone out, some considered dumb so use th
 - ชอบกินกะเพราใส่ถัวฝักยาวมั้ย ?
 - มีน้ำแดงหรือจะเอาน้ำส้ม ?
 - วันนี้นอนกี่โมงดี ?
+- ต้นๆ รถเป็นอะไรเหรอ?
