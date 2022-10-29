@@ -93,3 +93,4 @@ Random questions as an excuse to ask someone out, some considered dumb so use th
 - มีน้ำแดงหรือจะเอาน้ำส้ม ?
 - วันนี้นอนกี่โมงดี ?
 - ต้นๆ รถเป็นอะไรเหรอ?
+- คนเรามีหูซ้ายกี่ชิ้น ?
