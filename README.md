@@ -95,3 +95,4 @@ Random questions as an excuse to ask someone out, some considered dumb so use th
 - ต้นๆ รถเป็นอะไรเหรอ?
 - คนเรามีหูซ้ายกี่ชิ้น ?
 - คิดว่าวันนี้เราควรจะ deploy ดีไหม ?
+- ถามอะไรดีนะ ?
