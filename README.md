@@ -97,3 +97,4 @@ Random questions as an excuse to ask someone out, some considered dumb so use th
 - คิดว่าวันนี้เราควรจะ deploy ดีไหม ?
 - ถามอะไรดีนะ ?
 - จะมากี่โมง?
+- ไปอ่านหนังสือกันไหม ?
