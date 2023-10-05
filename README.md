@@ -100,3 +100,4 @@ Random questions as an excuse to ask someone out, some considered dumb so use th
 - ไปอ่านหนังสือกันไหม ?
 - กลับบ้านกับใครอะ?
 - เรียนจบยัง ?
+- ได้กลิ่นอะไรมั้ย
