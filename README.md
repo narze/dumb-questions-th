@@ -99,3 +99,4 @@ Random questions as an excuse to ask someone out, some considered dumb so use th
 - จะมากี่โมง?
 - ไปอ่านหนังสือกันไหม ?
 - กลับบ้านกับใครอะ?
+- เรียนจบยัง ?
