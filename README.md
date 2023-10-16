@@ -101,3 +101,4 @@ Random questions as an excuse to ask someone out, some considered dumb so use th
 - กลับบ้านกับใครอะ?
 - เรียนจบยัง ?
 - ได้กลิ่นอะไรมั้ย
+- เธออายุเท่าไหร่อะ ?
